@@ -12,6 +12,4 @@ Nerd interests aside I'm an avid fisherman 🎣 (whenever I get the chance) and 
 
 ### Get in Touch 📬
 
-You can always reach me on my [personal email](mailto:hello@olirowe.com)
-
-If you're wanting to talk about work, you can reach me on my [work email](mailto:oliver@helm.africa)
+The best place to reach me is on my [Linkedin](https://www.linkedin.com/in/the-one-the-only-oli-rowe/)
