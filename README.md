@@ -8,6 +8,8 @@ I love ML! Like really love it, the concept is amazing, let statistics write the
 
 Deep learning is also cool, still a bit of a sceptic though (think it's a little too over-hyped at the moment)
 
+And did I mention that I'm pretty good with python 🤔
+
 Nerd interests aside I'm an avid fisherman 🎣 (whenever I get the chance) and love long walks during the long summer evenings and spending time in the African bushveld 🐘
 
 ### Get in Touch 📬
